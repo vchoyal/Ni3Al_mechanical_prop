@@ -1,0 +1,1 @@
+# Ni3Al_mechanical_prop
